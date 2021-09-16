@@ -1,0 +1,2 @@
+Hi! I am Rajat. I have worked with Karnataka Bank as an officer for 2.5 years and during my stint there I got to know more about myself and found that I love solving complex problems and programming is the arena where I can do this tangibly and gain satisfaction. 
+Now, I am doing what I love fulltime and this is my portfolio in the making.
